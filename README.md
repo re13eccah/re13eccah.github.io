@@ -1,6 +1,2 @@
 # re13eccah.github.io
 EVERYONE IS C00L
-YOU
-ME
-EVERY
-ONE
